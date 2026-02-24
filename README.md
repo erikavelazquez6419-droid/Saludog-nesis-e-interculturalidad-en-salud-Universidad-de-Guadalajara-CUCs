@@ -1,2 +1,2 @@
-# Saluto-genesis-e-interculturalidad-en-salud-Universidad-de-Guadalajara-CUCs
+salutogenesis-interculturalidad-salud-udg-cucs
 Pagina web 
